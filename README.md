@@ -33,4 +33,3 @@ With a background in **computer science** and hands-on understanding of **cybers
 
 ⭐ *"Guiding talent, securing futures."*  
 
-i love abhiyettan
